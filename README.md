@@ -1,4 +1,4 @@
-# Omar-Khayam
+# Omar-Khayyam
 Kayam
 
 
